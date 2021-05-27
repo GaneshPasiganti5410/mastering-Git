@@ -7,6 +7,9 @@
  
  link for [gmail](gmail.com) 
 
+ [instagram](instagram.com)
+
+
 
 
 
